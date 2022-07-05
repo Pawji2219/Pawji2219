@@ -1,3 +1,4 @@
+https://debank.com/profile/0x773bef76289a37928db0dd0172e50cfeb4eb79d6
 - 👋 Hi, I’m @Pawji2219
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning trading
